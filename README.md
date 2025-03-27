@@ -50,7 +50,7 @@
 氣象局官網內容，並造成一棟大樓倒塌，新增幾件危樓並帶走數人性命
 
 <p align="left">
-  <img src="Screenshot_2024-04-03-08-23-06-52_cbf47468f7ecfbd8ebcc46bf9cc626da" width="44%"/>
+  <img src="Screenshot_2024-04-03-08-23-06-52_cbf47468f7ecfbd8ebcc46bf9cc626da.jpg" width="44%"/>
   <br>
 </p>
 
